@@ -1,0 +1,2 @@
+# premium-end-vise-001-end-vise-install-bench-dog-c
+Tired of juggling loose sketches, scattered notes, and forgotten measurements while installing your end vise and bench dogs? Your workshop deserves a system as precise as your joinery.  The End Vise Install &amp; Bench Dog Craft Studio is the first Notion template built specifically for planning and tracking end vise installations and bench dog setups.
